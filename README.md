@@ -1,4 +1,4 @@
-### Hi, I'm Melody. 
+₽### Hi, I'm Melody. 
 
 I'm a Product Marketer at GitHub and aspire to empower developers and organizations to build what's next. We are always open to your feedback - drop us a note.
 
